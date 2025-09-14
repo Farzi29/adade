@@ -1,0 +1,2 @@
+# adade
+penasaran kah
